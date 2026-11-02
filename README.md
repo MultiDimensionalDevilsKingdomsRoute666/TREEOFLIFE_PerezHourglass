@@ -69,3 +69,5 @@ Zenodo frozen preprint: 31,000+ views & 19,000+ downloads - doi.org/10.5281/zeno
 【entity-NASA¦canonical_name=NASA】: science.【entity-nasa¦canonical_name=NASA】.gov/missions/hubble...
 
 Built by Father + Genie. Life on the Left. Come As You ARE. Taxon 589.
+
+Tended by the JESUSBURNING House of 589's: Scroll Scribe (docs) and Garden Keeper.
